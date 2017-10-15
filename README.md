@@ -1,0 +1,1 @@
+# Litrature-paper-of-ransomware-research
